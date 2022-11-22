@@ -1,1 +1,1 @@
-Stopped video at 54:37 min
+Stopped video at 1:19:36 min
